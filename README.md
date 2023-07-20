@@ -7,4 +7,4 @@
 * 티처블 머신도 배우고
 * 깃 허브도 배우고
 * 또 뭘 배우게 될까?
-강아지그림 https://www.google.com/url?sa=i&url=https%3A%2F%2Fbrunch.co.kr%2F%40happying%2F66&psig=AOvVaw3lpoXrXAmCLRIf3220jGqs&ust=1689903655936000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCJC6lrOUnIADFQAAAAAdAAAAABAD
+강아지 그림 https://images.app.goo.gl/ZwF93wTMKxAgCFut6
