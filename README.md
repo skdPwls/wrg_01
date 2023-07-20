@@ -7,4 +7,3 @@
 * 티처블 머신도 배우고
 * 깃 허브도 배우고
 * 또 뭘 배우게 될까?
-강아지 그림 https://images.app.goo.gl/ZwF93wTMKxAgCFut6
